@@ -1,8 +1,8 @@
-I have been practicing front-end technology for more than 7 years in the mountains. If you need to do a front-end project, whether it is a simple project or you need me.
+I have been practicing front-end technology for more than 10 years in the mountains. If you need to do a front-end project, whether it is a simple project or you need me.
 
 Call me, I'm a responsible man.
 
-深山苦练前端技术7年有余,如果你需要做前端项目,不论是单纯项目还是要我这个人.
+深山苦练前端技术10年有余,如果你需要做前端项目,不论是单纯项目还是要我这个人.
 
 打给我,我是个负责任的男人.
 
